@@ -12,4 +12,4 @@
 Answer the questions below
 * Something interesting about me is I have 4 siblings.
 * Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+* List your sports and extracurriculars you participate in Academic Decathlon & Rocketry
