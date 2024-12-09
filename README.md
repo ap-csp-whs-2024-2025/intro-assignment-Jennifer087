@@ -11,5 +11,5 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is I have 4 siblings.
-* Ask Mr. Vu anything:
+* Ask Mr. Vu anything: What's your favorite color?
 * List your sports and extracurriculars you participate in Academic Decathlon & Rocketry
